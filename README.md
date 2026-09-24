@@ -1,0 +1,2 @@
+# politicasBodegaFacil
+politicas de privacidad
